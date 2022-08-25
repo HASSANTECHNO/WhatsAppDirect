@@ -1,3 +1,3 @@
 WhatsApp Direct
-for Conect
+for Connect
 instagram.com/hassantechno
